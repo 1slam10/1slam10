@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [github.com/1slam10](github.com/1slam10)
 
-- 📫 How to reach me **adilkhanislam9@icloud.com**
+- 📫 Youy can reach me by texting my email: **adilkhanislam9@icloud.com**
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/islam-adilkhan/](https://www.linkedin.com/in/islam-adilkhan/)
 
